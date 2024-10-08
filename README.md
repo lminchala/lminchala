@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lminchala
 - 👀 I’m interested in anything that can be used in everyday life and can bring joy.
-- 🌱 I’m currently learning at Hudson High School of Learning Technologies.
+- 🌱 I’m currently studying at City College of New York
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me through my email: lminchala45@gmail.com
 
